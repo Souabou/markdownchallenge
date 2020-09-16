@@ -20,8 +20,8 @@ Favorite food | Food in general
 
 ## You can always count on me to bring freshness when it's needed. Help on projects when I can solve them first or do them as a team. To share my good humor when it is welcome.
 
-### J'ai un jour raconté à ma maman que les enfants m'aimaient beaucoup et qu'il rigolent généralement en voyant ma tête. Elle me répond :" bha, c'est normal, Maya, t'as des cheveux bouclés & roux, et tu portes de grandes lunettes..." 
-#### En effet, en fait je ressemblais assez à un clown  🤡 
-#### sans le nez rouge! 🤷🏽‍♀️
+### J'ai un jour raconté à ma maman que les enfants m'aiment beaucoup et qu'ils rigolent généralement en voyant ma tête. Elle me répond :" Bha, c'est normal, Maya, t'as des cheveux bouclés & roux, et tu portes de graaaaandes lunettes, et tu t'habilles toujours avec plein  de couleurs..." 
+#### En effet, à l'époque je ressemblais assez à un clown.  🤡 
+#### Sans le nez rouge! 🤷🏽‍♀️
 
 [Sebastien](https://github.com/SebastienLamotte/Markdown-challenge/blob/master/README.md) || SOUMAYA || [Sylvain](https://github.com/SylvainDurant/markdown-challenge/blob/master/README.md)
