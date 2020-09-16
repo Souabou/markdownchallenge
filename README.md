@@ -17,10 +17,10 @@ Favorite food | Food in general
   + Household products
 + Mountains
 + Sport
+
 ## You can always count on me to bring freshness when it's needed. Help on projects when I can solve them first or do them as a team. To share my good humor when it is welcome.
+### J'ai un jour raconter à ma maman que les enfants m'aimait beaucoup. Elle me répond :" bha c'est normal t'as des cheveux roux et des grandes lunettes..."
+#### Oui, en fait je ressemble assez à un clown, oui 
+#### sans le nez rouge!
 
-### Je vais la faire en français ok.... 
-
-#### tl;dr
-
-#### summarise
+<< previous || YOUR NAME || next >>
