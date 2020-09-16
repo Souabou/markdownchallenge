@@ -19,8 +19,9 @@ Favorite food | Food in general
 + Sport
 
 ## You can always count on me to bring freshness when it's needed. Help on projects when I can solve them first or do them as a team. To share my good humor when it is welcome.
-### J'ai un jour raconter à ma maman que les enfants m'aimait beaucoup. Elle me répond :" bha c'est normal t'as des cheveux roux et des grandes lunettes..."
-#### Oui, en fait je ressemble assez à un clown, oui 
-#### sans le nez rouge!
+
+### J'ai un jour raconté à ma maman que les enfants m'aimaient beaucoup et qu'il rigolent généralement en voyant ma tête. Elle me répond :" bha, c'est normal, Maya, t'as des cheveux bouclés & roux, et tu portes de grandes lunettes..." 
+#### En effet, en fait je ressemblais assez à un clown  🤡 
+#### sans le nez rouge! 🤷🏽‍♀️
 
 << previous || YOUR NAME || next >>
