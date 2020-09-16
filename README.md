@@ -24,4 +24,4 @@ Favorite food | Food in general
 #### En effet, en fait je ressemblais assez à un clown  🤡 
 #### sans le nez rouge! 🤷🏽‍♀️
 
-<< previous || YOUR NAME || next >>
+Sebastien [https://github.com/SebastienLamotte/Markdown-challenge/blob/master/README.md] || SOUMAYA || Sylvain [https://github.com/SylvainDurant/markdown-challenge/blob/master/README.md]
